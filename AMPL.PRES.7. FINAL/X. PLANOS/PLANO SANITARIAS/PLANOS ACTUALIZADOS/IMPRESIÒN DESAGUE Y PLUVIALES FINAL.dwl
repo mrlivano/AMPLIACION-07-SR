@@ -1,0 +1,3 @@
+PC 00100
+DESKTOP-EA55CL0 
+lunes, 20 de junio de 2022  18:57:25
